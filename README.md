@@ -1,4 +1,4 @@
-## Merhabalar Telegram Botları İlgi Alanım Zevkine Takılıyorum Github.com da 🇹🇷
+## Merhabalar Telegram Botları İlgi Alanım Zevkine Burdayım 🇹🇷
  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="29px"> Ben Mehmetbaba06 
 
 ___
