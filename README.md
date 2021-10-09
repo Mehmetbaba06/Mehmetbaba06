@@ -1,4 +1,4 @@
-## Merhabalar Hala ögreniyorum 🇹🇷
+## Merhabalar Telegram Botları İlgi Alanım Zevkine Takılıyorum 🇹🇷
  <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="29px"> Ben Mehmetbaba06 
 
 ___
